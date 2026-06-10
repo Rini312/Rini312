@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **mohuyabanerjee2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XQV1dlMk9ELwxcPROlPXuR5KyZLVgkse/view?usp=share_link](https://drive.google.com/file/d/1XQV1dlMk9ELwxcPROlPXuR5KyZLVgkse/view?usp=share_link)
+- 📄 Know about my experiences [https://mohuya.wisestaging.com/](https://mohuya.wisestaging.com/)]
 
 - ⚡ Fun fact **I am fond of Old Retros**
 
